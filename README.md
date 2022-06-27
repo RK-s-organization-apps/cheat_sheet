@@ -1,1 +1,1 @@
-Here, you can find all th cheatsheat 
+Here, you can find all the cheatsheat 
